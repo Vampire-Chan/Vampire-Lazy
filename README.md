@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: They/Them
 - ⚡ Fun fact: I'm Funny
 
+### Want me to tell you more about myself? Then okay!
+Hello, I am Vampire, just a human version of real life vampire. I love to play games, making friends, enjoying life.
+Sometimes I even help those people who are not in their good state of mind. 
+
+Gaming, Programming, Joking, Sleeping and Eating is something I enjoy a lot.
+
+### If you want to contact me:
+##### Discord: [Server](https://discord.gg/786sAZgRFA) and username is **Vampire#7425**
+
+##### Twitter: [Profile](https://twitter.com/VampireLazy1)
